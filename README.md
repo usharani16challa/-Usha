@@ -1,2 +1,0 @@
-# -Usha
-Myself Challa usharani 
